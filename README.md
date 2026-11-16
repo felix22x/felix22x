@@ -1,4 +1,4 @@
-https://i.pinimg.com/1200x/1b/5d/81/1b5d8185d714ae804afc28e9cf15f9e0.jpg
+![image alt](https://i.pinimg.com/1200x/1b/5d/81/1b5d8185d714ae804afc28e9cf15f9e0.jpg)
 ## Hi there 👋
 
 # 💫 About Me:
